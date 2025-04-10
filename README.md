@@ -3,7 +3,7 @@
 **Backend Developer** from Saint Petersburg, Russia.
 ## 📬 Contact
 - 📧 Email: [h.sultanovv@gmail.com](mailto:h.sultanovv@gmail.com)
-- 💬 Telegram: [XaJIuJI](https://t.me/XaJIuJI)
+- 💬 Telegram: [itskhalilS](https://t.me/itskhalilS)
 
 ---
 
